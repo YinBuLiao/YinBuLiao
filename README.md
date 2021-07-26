@@ -10,6 +10,6 @@
 
 ❤️ &nbsp; I love Japanese anime
 
-🎧 &nbsp; This is my CloudMusic song list [Cilck me](http://music.163.com/playlist?id=878433869)](http://music.163.com/playlist?id=878433869)
+🎧 &nbsp; This is my CloudMusic song list [Cilck me](http://music.163.com/playlist?id=878433869)
 
 ***
