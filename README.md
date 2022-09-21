@@ -4,7 +4,7 @@
 
 ***
 
-👨🏻‍💻 &nbsp; I am an Frontend developer. 
+👨🏻‍💻 &nbsp; I am an Frontend and Backend developer. 
 
 📧 &nbsp; If you want to contact me, please send an email to admin@yinbuliao.cn
 
